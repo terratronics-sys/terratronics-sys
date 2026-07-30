@@ -1,6 +1,6 @@
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+<pre>                                           ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 <img width="1138" height="223" alt="image" src="https://github.com/user-attachments/assets/c27235a1-0ea4-47f9-98ca-e7ca1670a624" />
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+                                           ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ </pre>
 # TerraTronics-PonyTown [This updates occasionally]
 </br> ☆ We are a Heavily Fictive System with: AuDHD, Amnesia, Isomnia, Anxiety, Depression, Schizophrenia, Bipolar disorder. <Dissociative Identity Disorder>, obviously, quite a few disorders.
 </br> ──────────── ⋆⋅☆⋅⋆ ──────────── 
