@@ -28,6 +28,14 @@
 
 </br> ──────────── ⋆⋅☆⋅⋆ ──────────── 
 
+</br> **Pony Town Status:** 
+</br> 🟢 (Online) = Yeah ofc we are online!Feel free to interact.
+</br> 🌙 (Idle/Away) = We are probably off tab or AFK, so there may not be any responses. Drop a whisper if you want to!
+</br> ⛔ (Do Not Disturb) = We're often busy, or doing something. Which means we may not respond until we are done with what we are doing.
+</br> 💬 (Looking For Chat) = We are mostly free and wish to interact, so feel free to come along with us!
+</br> 🎭 (Looking for roleplay) = Something we rarely use since we hardly roleplay in the game. If we have it on, we just may be looking for one or want to interact around.
+
+
 </br> Common areas to find us in at the TF zone
 </br> We pretty much often sit with a friend or a few of them, but most of the time you will definitely see this other person with us (first two screenshots). But at some point, you may also see us sitting alone somewhere near these spots. You can feel free to say hi if you want to [if we seem like we are lonely /silly]
 <img width="867" height="603" alt="image" src="https://github.com/user-attachments/assets/bebfcdea-1488-434a-825d-7eae7b386dcc" />
