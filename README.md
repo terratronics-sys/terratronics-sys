@@ -16,7 +16,6 @@
 </br> Fake-claim, gatekeep, or critique our system or source background.
 </br> Cross personal boundaries or crowd us in-game after being asked to give space.
 </br> Proships, transphobes, homophobes, racists, zoophioles, pedophiles
-
 </br> 🟢 When It's OK to Interact
 </br> In-Game Greeting: Saying hi, waving, or dropping a boop on our pony sprite in Pony Town is almost always fine!
 </br> Compliments: Compliments on our custom pony skins and outfits are always appreciated!
