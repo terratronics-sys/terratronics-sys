@@ -45,7 +45,7 @@
 </br> ──────────── ⋆⋅☆⋅⋆ ──────────── 
 
 ### </br> Some basic interacting
-</br> Mostly Transformers is our main interest. We also enjoy most other TF Media, or different kinds of movies, games, books, etc. So feel free to ask about them!
+</br> Transformers is our main interest. We also enjoy most other TF Media, or different kinds of movies, games, books, etc. So feel free to ask about them!
 </br> Each headmate is a different person, of course. You may befriend someone, but it does not mean others are also friends with you, and may be unaware you're friends in the game. Most of the time, it is preferred that you ask to add us/them as friends in-game!
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 <img width="1138" height="223" alt="image" src="https://github.com/user-attachments/assets/8253e5f1-c7d1-4d5f-bfdb-fa6eb41357b4" />
