@@ -36,7 +36,7 @@
 </br> 🎭 (Looking for roleplay) = Something we rarely use since we hardly roleplay in the game. If we have it on, we just may be looking for one or want to interact around.
 
 
-</br> Common areas to find us in at the TF zone
+</br> Common areas to find us in at the TF zone.
 </br> We pretty much often sit with a friend or a few of them, but most of the time you will definitely see this other person with us (first two screenshots). But at some point, you may also see us sitting alone somewhere near these spots. You can feel free to say hi if you want to [if we seem like we are lonely /silly]
 <img width="867" height="603" alt="image" src="https://github.com/user-attachments/assets/bebfcdea-1488-434a-825d-7eae7b386dcc" />
 <img width="871" height="515" alt="image" src="https://github.com/user-attachments/assets/ac5cb3c9-b953-4d9c-8d2d-9e8be23682a5" />
