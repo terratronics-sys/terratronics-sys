@@ -28,7 +28,7 @@
 </br> ──────────── ⋆⋅☆⋅⋆ ──────────── 
 
 </br> **Pony Town Status:** 
-</br> 🟢 (Online) = Yeah ofc we are online!Feel free to interact.
+</br> 🟢 (Online) = Yeah ofc we are online! Feel free to interact.
 </br> 🌙 (Idle/Away) = We are probably off tab or AFK, so there may not be any responses. Drop a whisper if you want to!
 </br> ⛔ (Do Not Disturb) = We're often busy, or doing something. Which means we may not respond until we are done with what we are doing.
 </br> 💬 (Looking For Chat) = We are mostly free and wish to interact, so feel free to come along with us!
@@ -41,3 +41,7 @@
 <img width="871" height="515" alt="image" src="https://github.com/user-attachments/assets/ac5cb3c9-b953-4d9c-8d2d-9e8be23682a5" />
 <img width="786" height="500" alt="image" src="https://github.com/user-attachments/assets/8b53ac99-1e69-47b6-8c6c-d159e87cddba" />
 </br> ──────────── ⋆⋅☆⋅⋆ ──────────── 
+
+### </br> Some basic interacting
+</br> Mostly Transformers is our main interest. We also enjoy most other TF Media, or different kinds of movies, games, books, etc. So feel free to ask about them!
+</br> Each headmate is a different person, of course. You may befriend someone, but it does not mean others are also friends with you, and may be unaware you're friends in the game. Most of the time, it is preferred that you ask to add us/them as friends in-game!
