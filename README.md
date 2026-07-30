@@ -16,7 +16,7 @@
 Casual area to find us in when we are in the TF Zone, often with a friend(s):
 <img width="820" height="567" alt="image" src="https://github.com/user-attachments/assets/ac5fa5c1-dfb3-42ac-bf6d-17605d519a50" />
 <img width="728" height="535" alt="image" src="https://github.com/user-attachments/assets/3edadeff-5b70-41e8-993d-8a801c142421" />
-<img width="793" height="587" alt="image" src="https://github.com/user-attachments/assets/4c12dafb-2dd6-46ea-ba7c-24c0de9e2989" />
+<img width="793" height="587" alt="image" src="https://github.com/user-attachments/assets/4c12dafb-2dd6-46ea-ba7c-24c0de9e2989" /> 
 
 </br> We pretty much often sit with a friend or a few of them, but most of the time you will definitely see this other person with us (first and second screenshots) But also at some point you may see us sitting alone somewhere by these spots. You can feel free to say hi if you want to [if we seem like we are lonely /silly]
 
