@@ -9,14 +9,7 @@
 
 </br> On Discord, headmates use designated proxy tags when typing. On Pony Town, we speak directly as the active pony! Feel free to whisper us in Pony Town, but please understand if our response is slow during blurry or tired fronting moments.
 
-<img width="820" height="130" alt="image" src="https://github.com/user-attachments/assets/561387eb-6833-44a0-90a9-8b10ab827f87" />
-
-**Pony Town Maps/Servers**: You can usually find us on the 18+ Server around the casual Transformers Area (far right on the map, by a lake after leaving spawn, nearby the mines // right of the bakery, near the path leading up to the mountains), or when we aren't there, we may be occasionally in our Party Island with other friends/party members.
-
-Casual area to find us in when we are in the TF Zone, often with a friend(s):
-<img width="820" height="567" alt="image" src="https://github.com/user-attachments/assets/ac5fa5c1-dfb3-42ac-bf6d-17605d519a50" />
-<img width="728" height="535" alt="image" src="https://github.com/user-attachments/assets/3edadeff-5b70-41e8-993d-8a801c142421" />
-<img width="793" height="587" alt="image" src="https://github.com/user-attachments/assets/4c12dafb-2dd6-46ea-ba7c-24c0de9e2989" /> 
+</br> **Pony Town Maps/Servers**: You can usually find us on the 18+ Server around the casual Transformers Area (far right on the map, by a lake after leaving spawn, nearby the mines // right of the bakery, near the path leading up to the mountains), or when we aren't there, we may be occasionally in our Party Island with other friends/party members.
 
 </br> We pretty much often sit with a friend or a few of them, but most of the time you will definitely see this other person with us (first and second screenshots) But also at some point you may see us sitting alone somewhere by these spots. You can feel free to say hi if you want to [if we seem like we are lonely /silly]
 
@@ -35,22 +28,6 @@ Casual area to find us in when we are in the TF Zone, often with a friend(s):
 </br> Compliments: Complimenting our custom pony skins and outfits is always appreciated!
 </br> Sitting Nearby: Sitting in the same circle or area as us on the map is fine; just give us a little breathing room. We don't like being crowded if it's not close people or someone we don't know well. ALSO, avoid sitting directly over our sprite or hovering continuously overhead, as visual clutter causes sensory overload.
 
-</br> **Fronters you may see around**: 
-
-</br> Megatron <img width="341" height="340" alt="image" src="https://github.com/user-attachments/assets/b692faac-3040-4294-897a-be69d9c612bc" /> 
-
-</br> Starscream <img width="300" height="343" alt="image" src="https://github.com/user-attachments/assets/ad7a006c-c112-414a-93ab-46a71f007b6a" /> 
-
-</br> Hashtag <img width="326" height="352" alt="image" src="https://github.com/user-attachments/assets/e2e85fbc-15ac-4b16-9785-b90be5cf4df1" />
-
-</br> Thrash <img width="288" height="316" alt="image" src="https://github.com/user-attachments/assets/2fcd8639-eb54-41a4-b4f4-272da3a322b9" />
-
-</br> Megatronus Prime <img width="333" height="348" alt="image" src="https://github.com/user-attachments/assets/89afd260-dc79-4497-9379-5f9fb492ff7d" />
-
-</br> Sentinel Prime <img width="338" height="323" alt="image" src="https://github.com/user-attachments/assets/120304dc-ce13-41bf-9229-95528950ceb4" />
-
 </br> **Sometimes, the said-so headmates have their own style of making their pony designs!**
-
-
 </br> While we draw from the primary narrative, our reality diverges significantly, particularly in later seasonal arcs and character development. Some established canon events occurred differently within our reality, or in some instances, not at all. Consequently, our collective memory of these events may vary from the official source material. Always consider the specific headmate you are interacting with, as their individual relationship to these timeline deviations can vary significantly.
 
