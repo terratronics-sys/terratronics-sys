@@ -11,8 +11,6 @@
 
 </br> **Pony Town Maps/Servers**: You can usually find us on the 18+ Server around the casual Transformers Area (far right on the map, by a lake after leaving spawn, nearby the mines // right of the bakery, near the path leading up to the mountains), or when we aren't there, we may be occasionally in our Party Island with other friends/party members.
 
-</br> We pretty much often sit with a friend or a few of them, but most of the time you will definitely see this other person with us (first and second screenshots) But also at some point you may see us sitting alone somewhere by these spots. You can feel free to say hi if you want to [if we seem like we are lonely /silly]
-
 </br> Many of the pony skins and character designs you see in-game are non-canon and entirely our own custom interpretations. These skins are directly adapted from our own pre-existing 3D models, original concept art, personal visual headcanons, and custom system artwork, rather than strictly following layouts from official or canon source media.
 
 </br> 🛑 DNI List
@@ -30,4 +28,12 @@
 
 </br> **Sometimes, the said-so headmates have their own style of making their pony designs!**
 </br> While we draw from the primary narrative, our reality diverges significantly, particularly in later seasonal arcs and character development. Some established canon events occurred differently within our reality, or in some instances, not at all. Consequently, our collective memory of these events may vary from the official source material. Always consider the specific headmate you are interacting with, as their individual relationship to these timeline deviations can vary significantly.
+
+
+</br> Common areas to find us in at the TF zone
+</br> We pretty much often sit with a friend or a few of them, but most of the time you will definitely see this other person with us (first and second screenshots) But also at some point you may see us sitting alone somewhere by these spots. You can feel free to say hi if you want to [if we seem like we are lonely /silly]
+<img width="867" height="603" alt="image" src="https://github.com/user-attachments/assets/bebfcdea-1488-434a-825d-7eae7b386dcc" />
+<img width="871" height="515" alt="image" src="https://github.com/user-attachments/assets/ac5cb3c9-b953-4d9c-8d2d-9e8be23682a5" />
+<img width="786" height="500" alt="image" src="https://github.com/user-attachments/assets/8b53ac99-1e69-47b6-8c6c-d159e87cddba" />
+
 
