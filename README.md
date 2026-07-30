@@ -1,5 +1,6 @@
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 <img width="1138" height="223" alt="image" src="https://github.com/user-attachments/assets/c27235a1-0ea4-47f9-98ca-e7ca1670a624" />
-
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 # TerraTronics-PonyTown [This updates occasionally]
 </br> ☆ We are a Heavily Fictive System with: AuDHD, Amnesia, Isomnia, Anxiety, Depression, Schizophrenia, Bipolar disorder. <Dissociative Identity Disorder>, obviously, quite a few disorders.
 </br> ──────────── ⋆⋅☆⋅⋆ ──────────── 
@@ -26,18 +27,16 @@
 
 </br> **Sometimes, the said-so headmates have their own style of making their pony designs!**
 </br> While we draw from the primary narrative, our reality diverges significantly, particularly in later seasonal arcs and character development. Some established canon events occurred differently within our reality, or in some instances, not at all. Consequently, our collective memory of these events may vary from the official source material. Always consider the specific headmate you are interacting with, as their individual relationship to these timeline deviations can vary significantly.
-
 </br> ──────────── ⋆⋅☆⋅⋆ ──────────── 
-
 </br> **Pony Town Status:** 
 </br> 🟢 (Online) = Yeah ofc we are online! Feel free to interact.
 </br> 🌙 (Idle/Away) = We are probably off tab or AFK, so there may not be any responses. Drop a whisper if you want to!
 </br> ⛔ (Do Not Disturb) = We're often busy, or doing something. Which means we may not respond until we are done with what we are doing.
 </br> 💬 (Looking For Chat) = We are mostly free and wish to interact, so feel free to come along with us!
 </br> 🎭 (Looking for roleplay) = Something we rarely use since we hardly roleplay in the game. If we have it on, we just may be looking for one or want to interact around.
-
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 <img width="960" height="221" alt="image" src="https://github.com/user-attachments/assets/4b6f732a-0db4-439c-aeaa-4491adefcd89" />
-
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 </br> Common areas to find us in at the TF zone.
 </br> We pretty much often sit with a friend or a few of them, but most of the time you will definitely see this other person with us (first two screenshots). But at some point, you may also see us sitting alone somewhere near these spots. You can feel free to say hi if you want to [if we seem like we are lonely /silly]
 <img width="867" height="603" alt="image" src="https://github.com/user-attachments/assets/bebfcdea-1488-434a-825d-7eae7b386dcc" />
@@ -48,6 +47,6 @@
 ### </br> Some basic interacting
 </br> Mostly Transformers is our main interest. We also enjoy most other TF Media, or different kinds of movies, games, books, etc. So feel free to ask about them!
 </br> Each headmate is a different person, of course. You may befriend someone, but it does not mean others are also friends with you, and may be unaware you're friends in the game. Most of the time, it is preferred that you ask to add us/them as friends in-game!
-
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 <img width="1138" height="223" alt="image" src="https://github.com/user-attachments/assets/8253e5f1-c7d1-4d5f-bfdb-fa6eb41357b4" />
-
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
