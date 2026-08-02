@@ -31,7 +31,7 @@
 </br> **Pony Town Status:** 
 </br> 🟢 (Online) = Yeah ofc we are online! Feel free to interact.
 </br> 🌙 (Idle/Away) = We are probably off tab or AFK, so there may not be any responses. Drop a whisper if you want to!
-</br> ⛔ (Do Not Disturb) = We're often busy, or doing something. Which means we may not respond until we are done with what we are doing.
+</br> ⛔ (Do Not Disturb) = We're often busy, or doing something. Which means we may not respond until we are done with what we are doing. Or it means **to not** interact with us when we are with other friends.
 </br> 💬 (Looking For Chat) = We are mostly free and wish to interact, so feel free to come along with us!
 </br> 🎭 (Looking for roleplay) = Something we rarely use since we hardly roleplay in the game. If we have it on, we just may be looking for one or want to interact around.
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
