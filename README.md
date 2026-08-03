@@ -37,7 +37,7 @@
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 <img width="960" height="221" alt="image" src="https://github.com/user-attachments/assets/4b6f732a-0db4-439c-aeaa-4491adefcd89" />
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
-</br> Common areas to find us in at the TF zone. Most pony skins we use are: Starscream, many Megatron variants, Knock Out, OCs, Sentinel Primeor randoms.
+</br> Common areas to find us in is at the TF zone. Most pony skins we use are: Starscream, many Megatron variants, Unicron, Knock Out, Sentinel Prime, OCs.
 </br> We pretty much often sit with a friend or a few of them, but most of the time you will definitely see this other person with us (first two screenshots). But at some point, you may also see us sitting alone somewhere near these spots. You can feel free to say hi if you want to [if we seem like we are lonely /silly]
 <img width="867" height="603" alt="image" src="https://github.com/user-attachments/assets/bebfcdea-1488-434a-825d-7eae7b386dcc" />
 <img width="871" height="515" alt="image" src="https://github.com/user-attachments/assets/ac5cb3c9-b953-4d9c-8d2d-9e8be23682a5" />
