@@ -1,3 +1,7 @@
+<div align="center">
+  <img src="https://komarev.com/ghpvc/?username=terratronics-sys&label=Profile%20Views&color=c44f48&style=flat" style="border-radius: 999px;" />
+</div>
+ 
  ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 <img width="1138" height="223" alt="image" src="https://github.com/user-attachments/assets/c27235a1-0ea4-47f9-98ca-e7ca1670a624" />
  ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ </pre>
