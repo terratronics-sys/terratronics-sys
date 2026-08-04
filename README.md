@@ -46,7 +46,7 @@
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 <img width="960" height="221" alt="image" src="https://github.com/user-attachments/assets/4b6f732a-0db4-439c-aeaa-4491adefcd89" />
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
-</br> Common areas to find us in are at the TF zone. Most Fronters are: Starscream, Megatron, Unicron, Knock Out, Sentinel Prime, OCs. If you see those pony skins used, it implies that it is them fronting.
+</br> Common areas to find us in are at the TF zone in either the 18+ Server or the Safe Server. Most Fronters are: Starscream, Megatron, Unicron, Knock Out, Sentinel Prime, OCs. If you see those pony skins used, it implies they're fronting.
 
 </br> We pretty much often sit with a friend or a few of them, but most of the time you will definitely see this other person with us (first two screenshots). But at some point, you may also see us sitting alone somewhere near these spots. You can feel free to say hi if you want to [if we seem like we are lonely /silly]
 <img width="867" height="603" alt="image" src="https://github.com/user-attachments/assets/bebfcdea-1488-434a-825d-7eae7b386dcc" />
@@ -57,7 +57,7 @@
 </br> ──────────── ⋆⋅☆⋅⋆ ──────────── 
 
 ### </br> Some basic interacting
-</br> Transformers is our main interest. We also enjoy most other TF Media, or different kinds of movies, games, books, etc. So feel free to ask about them!
+</br> Transformers is our main interest. We also enjoy most other TF Media, as well as different kinds of movies, games, books, etc. So feel free to ask about them!
 </br> Each headmate is a different person, of course. You may befriend someone, but it does not mean others are also friends with you, and may be unaware you're friends in the game. Most of the time, it is preferred that you ask to add us/them as friends in-game!
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
