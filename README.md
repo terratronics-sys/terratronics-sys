@@ -1,6 +1,9 @@
 <div align="center">
   <img src="https://komarev.com/ghpvc/?username=terratronics-sys&label=Profile%20Views&color=c44f48&style=flat" style="border-radius: 999px;" />
 </div>
+
+
+
  
  ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 <img width="1138" height="223" alt="image" src="https://github.com/user-attachments/assets/c27235a1-0ea4-47f9-98ca-e7ca1670a624" />
@@ -23,7 +26,7 @@
 </br> Fake-claim, gatekeep, or critique our system or source background.
 </br> Cross personal boundaries or crowd us in-game after being asked to give space.
 </br> Proships, transphobes, homophobes, racists, zoophioles, pedophiles
-</br> Personal DNI: DO NOT Cover us unless you are one of our (closer) friends.
+</br> Personal DNI: DO *NOT* Cover us unless you are one of our (closer) friends.
 </br> 🟢 When It's OK to Interact
 </br> In-Game Greeting: Saying hi, waving, or dropping a boop on our pony sprite in Pony Town is almost always fine!
 </br> Compliments: Compliments on our custom pony skins and outfits are always appreciated!
@@ -32,6 +35,7 @@
 
 </br> **Sometimes, the said-so headmates have their own style of making their pony designs!**
 </br> While we draw from the primary narrative, our reality diverges significantly, particularly in later seasonal arcs and character development. Some established canon events occurred differently within our reality, or in some instances, not at all. Consequently, our collective memory of these events may vary from the official source material. Always consider the specific headmate you are interacting with, as their individual relationship to these timeline deviations can vary significantly.
+
 </br> ──────────── ⋆⋅☆⋅⋆ ──────────── 
 </br> **Pony Town Status:** 
 </br> 🟢 (Online) = Yeah ofc we are online! Feel free to interact.
@@ -42,7 +46,7 @@
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 <img width="960" height="221" alt="image" src="https://github.com/user-attachments/assets/4b6f732a-0db4-439c-aeaa-4491adefcd89" />
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
-</br> Common areas to find us in are at the TF zone. Most pony skins we use are: Starscream, many Megatron variants, Unicron, Knock Out, Sentinel Prime, OCs.
+</br> Common areas to find us in are at the TF zone. Most Fronters are: Starscream, Megatron, Unicron, Knock Out, Sentinel Prime, OCs. If you see those pony skins used, it implies that it is them fronting.
 </br> We pretty much often sit with a friend or a few of them, but most of the time you will definitely see this other person with us (first two screenshots). But at some point, you may also see us sitting alone somewhere near these spots. You can feel free to say hi if you want to [if we seem like we are lonely /silly]
 <img width="867" height="603" alt="image" src="https://github.com/user-attachments/assets/bebfcdea-1488-434a-825d-7eae7b386dcc" />
 <img width="871" height="515" alt="image" src="https://github.com/user-attachments/assets/ac5cb3c9-b953-4d9c-8d2d-9e8be23682a5" />
@@ -54,6 +58,7 @@
 ### </br> Some basic interacting
 </br> Transformers is our main interest. We also enjoy most other TF Media, or different kinds of movies, games, books, etc. So feel free to ask about them!
 </br> Each headmate is a different person, of course. You may befriend someone, but it does not mean others are also friends with you, and may be unaware you're friends in the game. Most of the time, it is preferred that you ask to add us/them as friends in-game!
+
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 <img width="1138" height="223" alt="image" src="https://github.com/user-attachments/assets/8253e5f1-c7d1-4d5f-bfdb-fa6eb41357b4" />
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
