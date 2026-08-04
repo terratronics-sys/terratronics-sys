@@ -9,8 +9,10 @@
 </br> Bodily Age: 20 o☆
 </br> ──────────── ⋆⋅☆⋅⋆ ──────────── 
 </br> Fronting shifts can happen instantly and without warning. If we suddenly drop out of a conversation, change our typing style completely, or seem to lose track of what we were talking about, a switch likely just occurred. Please give us a moment to ground ourselves and get caught up. There are times when a headmate who is currently at the front genuinely cannot recall a conversation or plan made by someone else yesterday. If we ask you to repeat yourself or provide context, it is not because we don't care; it's just a regular system boundary. If we don't swap ponies immediately when a switch happens, it is mainly due to the suddenness of it and confusion.
+  
 </br> Energy depletion and burnout are shared. If the system goes quiet or responses become shorter, it is a sign of a collective low battery, not a personal slight. Sudden silence means we are recalibrating. If we disappear mid-conversation, it is almost always due to sudden overstimulation, an internal shift, or a forced dissociation. We are not discarding the chat; our processing units just temporarily hit a wall.
 </br> Because processing social cues can vary wildly depending on who is at the front, passive-aggressiveness or subtle hinting easily gets lost or causes systemic anxiety. If there is an issue, please tell us plainly so we can address it together
+
 </br> On Discord, headmates use designated proxy tags when typing. On Pony Town, we speak directly as the active pony! Feel free to whisper us in Pony Town, but please understand if our response is slow during blurry or tired fronting moments.
 </br> **Pony Town Maps/Servers**: You can usually find us on the 18+ Server around the casual Transformers Area (far right on the map, by a lake after leaving spawn, nearby the mines // right of the bakery, near the path leading up to the mountains), or when we aren't there, we may be occasionally in our Party Island with other friends/party members.
 </br> Many of the pony skins and character designs you see in-game are non-canon and entirely our own custom interpretations. These skins are directly adapted from our own pre-existing 3D models, original concept art, personal visual headcanons, and custom system artwork, rather than strictly following layouts from official or canon source media.
@@ -24,6 +26,7 @@
 </br> Cross personal boundaries or crowd us in-game after being asked to give space.
 </br> Proships, transphobes, homophobes, racists, zoophioles, pedophiles
 </br> Personal DNI: DO *NOT* Cover us unless you are one of our (closer) friends.
+
 </br> 🟢 When It's OK to Interact
 </br> In-Game Greeting: Saying hi, waving, or dropping a boop on our pony sprite in Pony Town is almost always fine!
 </br> Compliments: Compliments on our custom pony skins and outfits are always appreciated!
@@ -44,6 +47,7 @@
 <img width="960" height="221" alt="image" src="https://github.com/user-attachments/assets/4b6f732a-0db4-439c-aeaa-4491adefcd89" />
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 </br> Common areas to find us in are at the TF zone. Most Fronters are: Starscream, Megatron, Unicron, Knock Out, Sentinel Prime, OCs. If you see those pony skins used, it implies that it is them fronting.
+
 </br> We pretty much often sit with a friend or a few of them, but most of the time you will definitely see this other person with us (first two screenshots). But at some point, you may also see us sitting alone somewhere near these spots. You can feel free to say hi if you want to [if we seem like we are lonely /silly]
 <img width="867" height="603" alt="image" src="https://github.com/user-attachments/assets/bebfcdea-1488-434a-825d-7eae7b386dcc" />
 <img width="871" height="515" alt="image" src="https://github.com/user-attachments/assets/ac5cb3c9-b953-4d9c-8d2d-9e8be23682a5" />
