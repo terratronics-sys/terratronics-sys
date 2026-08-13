@@ -27,18 +27,18 @@ Many of the pony skins and character designs you see in-game are non-canon and e
 <p align="center"> ──────────── ⋆⋅☆⋅⋆ ──────────── 
 </br> 🛑 DNI List
 </br> Please do not interact if you fit basic DNI criteria, or if you:
-</br> Harassment, or skin-stealing/copying.
+</br> Harassment or skin-stealing/copying.
 </br> If you are under 16+
 </br> Fake-claim, gatekeep, or critique our system or source background.
 </br> Cross personal boundaries or crowd us in-game after being asked to give space.
-</br> Proships, transphobes, homophobes, racists, zoophioles, pedophiles
-</br> Personal DNI: DO *NOT* Cover us unless you are one of our (closer) friends.
+</br> Proships, transphobes, homophobes, racists, zoophiles, pedophiles
+</br> Personal DNI: DO *NOT* cover us unless you are one of our (closer) friends.
 <p align="center"> 🟢 When It's OK to Interact
 </br> In-Game Greeting: Saying hi, waving, or dropping a boop on our pony sprite in Pony Town is almost always fine!
 </br> Compliments: Compliments on our custom pony skins and outfits are always appreciated!
 </br> Sitting Nearby: Sitting in the same circle or area as us on the map is fine; just give us a little breathing room. We don't like being crowded if it's not close people or someone we don't know well. ALSO, avoid sitting directly over our sprite or hovering continuously overhead, as visual clutter causes sensory overload.
 <p align="center">  ──────────── ⋆⋅☆⋅⋆ ──────────── 
-<p align="center"> **Sometimes, the said-so headmates have their own style of making their pony designs!**
+<p align="center"> Sometimes, the said-so headmates have their own style of making their pony designs!
 </br> While we draw from the primary narrative, our reality diverges significantly, particularly in later seasonal arcs and character development. Some established canon events occurred differently within our reality, or in some instances, not at all. Consequently, our collective memory of these events may vary from the official source material. Always consider the specific headmate you are interacting with, as their individual relationship to these timeline deviations can vary significantly.
 <p align="center"> ──────────── ⋆⋅☆⋅⋆ ──────────── 
 <p align="center"> Pony Town Status:
