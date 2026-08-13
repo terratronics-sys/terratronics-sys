@@ -84,7 +84,7 @@ Many of the pony skins and character designs you see in-game are non-canon and e
   <br><br>
   • <a href="https://open.spotify.com/track/3UEnF6y5tyHVtMzldS3svp">Everything Black</a> – Unlike Pluto, Mike Taylor, UP+MT<br>
   • <a href="https://open.spotify.com/track/770TASLWFIJlwJrRMPWdaI">Terrible Things</a> – AXIE<br>
-  • <a href="https://open.spotify.com/track/1I6sx82iLyF7iCD5CaeFBR">You Are What You Fear in Me</a> – Banshee<br>
+  • <a href="https://open.spotify.com/track/1I6sx82iLyF7iCD5CaeFBR">You are what you fear in me.</a> – Banshee<br>
   • <a href="https://open.spotify.com/track/1Q98DdOmQlFrIaldR4MOVl">Birth of Venus</a> – Banshee<br>
   • <a href="https://open.spotify.com/track/5HlRJ3ZIO1fOPXqKNAWrmT">Driving with My Darling</a> – And One<br>
   • <a href="https://open.spotify.com/track/7sNXaphSgUY1poyDVjsYkN">Exorcism</a> – CreepP <br>
