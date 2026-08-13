@@ -88,6 +88,7 @@ Many of the pony skins and character designs you see in-game are non-canon and e
   • <a href="https://open.spotify.com/track/1Q98DdOmQlFrIaldR4MOVl">Birth of Venus</a> – Banshee<br>
   • <a href="https://open.spotify.com/track/5HlRJ3ZIO1fOPXqKNAWrmT">Driving with My Darling</a> – And One<br>
   • <a href="https://open.spotify.com/track/7sNXaphSgUY1poyDVjsYkN">Exorcism</a> – CreepP
+  • <a href="[https://open.spotify.com/track/4Urf0gTYkomC3yQeDJJZc5?si=3c89d45048e54545)">Play My Way</a> – Jakeneutron, Blair Greene-Osakom Neelz
 </p>
   
 <p align="center">
