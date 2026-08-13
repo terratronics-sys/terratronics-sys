@@ -7,17 +7,33 @@
   <img src="https://komarev.com/ghpvc/?username=terratronics-sys&label=Profile%20Views&color=c44f48&style=flat" style="border-radius: 999px;" />
 </div>
 
-
  <p align="center"> ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 <img width="1138" height="223" alt="image" src="https://github.com/user-attachments/assets/c27235a1-0ea4-47f9-98ca-e7ca1670a624" />
  ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ </pre>
  
 <p align="center">  # TerraTronics-PonyTown [This updates occasionally]
 </br> ☆ We are a Heavily Fictive System with: AuDHD, Amnesia, Insomnia, Anxiety, Depression, Schizophrenia, Bipolar disorder, Dissociative Identity Disorder [obviously], quite a few disorders.
-</br> Bodily Age: 20 o☆
+</br> ☆o Bodily Age: 20 o☆
+<div align="center"> <details>
+    <summary><b>Frequent (and possible) fronters:</b> [mostly EarthSpark fictives]</summary>
+    <br>
+    Megatron<br>
+    Optimus Prime<br>
+    Starscream<br>
+    Soundwave<br>
+    Shockwave<br>
+    Dorothy Malto<br>
+    Thrash Malto<br>
+    Twitch Malto<br>
+    Hashtag Malto<br>
+    Unicron<br>
+    Megabite<br>
+    Nightspark<br>
+    Highgrgound<br>
+  </details>
+</p>
 <p align="center"> ──────────── ⋆⋅☆⋅⋆ ──────────── 
 </br> Fronting shifts can happen instantly and without warning. If we suddenly drop out of a conversation, change our typing style completely, or seem to lose track of what we were talking about, a switch likely just occurred. Please give us a moment to ground ourselves and get caught up. There are times when a headmate who is currently at the front genuinely cannot recall a conversation or plan made by someone else yesterday. If we ask you to repeat yourself or provide context, it is not because we don't care; it's just a regular system boundary. If we don't swap ponies immediately when a switch happens, it is mainly due to the suddenness of it and confusion.
-
 <p align="center"> Energy depletion and burnout are shared. If the system goes quiet or responses become shorter, it is a sign of a collective low battery, not a personal slight. Sudden silence means we are recalibrating. If we disappear mid-conversation, it is almost always due to sudden overstimulation, an internal shift, or a forced dissociation. We are not discarding the chat; our processing units just temporarily hit a wall.
 </br> Because processing social cues can vary wildly depending on who is at the front, passive-aggressiveness or subtle hinting easily gets lost or causes systemic anxiety. If there is an issue, please tell us plainly so we can address it together
 
