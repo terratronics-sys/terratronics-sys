@@ -29,7 +29,7 @@
     Unicron<br>
     Megabite<br>
     Nightspark<br>
-    Highgrgound<br>
+    Highground<br>
   </details>
 </p>
 <p align="center"> ──────────── ⋆⋅☆⋅⋆ ──────────── 
