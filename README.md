@@ -94,3 +94,11 @@ Many of the pony skins and character designs you see in-game are non-canon and e
 <p align="center">
   ✧· <code>[</code> $\color{#991b1b}{\text{Frequencies}}$ $\color{#7f1d1d}{\text{fading...}}$ $\color{#334155}{\text{core}}$ $\color{#0369a1}{\text{temp}}$ $\color{#1e40af}{\text{nominal.}}$ $\color{#172554}{\text{💤}}$ <code>]</code> ·✧
 </p>
+
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31pejfyiltzozqug3bkcnxlyae5y&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31pejfyiltzozqug3bkcnxlyae5y&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color_cover=true">
+  </a>
+</p>
+
+
