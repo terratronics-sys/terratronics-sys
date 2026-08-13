@@ -80,7 +80,7 @@ Many of the pony skins and character designs you see in-game are non-canon and e
 <p align="center"> <img width="200" height="201" alt="image" src="https://github.com/user-attachments/assets/f761cdcd-c58a-467f-b838-752dd14a97f6" />
 
 <p align="center">
-  <b>🎵 Favorite System-Wide Songs:</b>
+  <b>🎵 Favorite System-Wide Songs: 🎵</b>
   <br><br>
   • <a href="https://open.spotify.com/track/3UEnF6y5tyHVtMzldS3svp">Everything Black</a> – Unlike Pluto, Mike Taylor, UP+MT<br>
   • <a href="https://open.spotify.com/track/770TASLWFIJlwJrRMPWdaI">Terrible Things</a> – AXIE<br>
