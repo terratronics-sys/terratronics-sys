@@ -13,7 +13,7 @@
  ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ </pre>
  
 <p align="center">  # TerraTronics-PonyTown [This updates occasionally]
-</br> ☆ We are a Heavily Fictive System with: AuDHD, Amnesia, Isomnia, Anxiety, Depression, Schizophrenia, Bipolar disorder. <Dissociative Identity Disorder>, obviously, quite a few disorders.
+</br> ☆ We are a Heavily Fictive System with: AuDHD, Amnesia, Insomnia, Anxiety, Depression, Schizophrenia, Bipolar disorder, <Dissociative Identity Disorder>, obviously, quite a few disorders.
 </br> Bodily Age: 20 o☆
 <p align="center"> ──────────── ⋆⋅☆⋅⋆ ──────────── 
 </br> Fronting shifts can happen instantly and without warning. If we suddenly drop out of a conversation, change our typing style completely, or seem to lose track of what we were talking about, a switch likely just occurred. Please give us a moment to ground ourselves and get caught up. There are times when a headmate who is currently at the front genuinely cannot recall a conversation or plan made by someone else yesterday. If we ask you to repeat yourself or provide context, it is not because we don't care; it's just a regular system boundary. If we don't swap ponies immediately when a switch happens, it is mainly due to the suddenness of it and confusion.
