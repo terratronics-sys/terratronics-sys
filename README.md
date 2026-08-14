@@ -89,7 +89,9 @@ Many of the pony skins and character designs you see in-game are non-canon and e
   • <a href="https://open.spotify.com/track/5HlRJ3ZIO1fOPXqKNAWrmT">Driving with My Darling</a> – And One<br>
   • <a href="https://open.spotify.com/track/7sNXaphSgUY1poyDVjsYkN">Exorcism</a> – CreepP <br>
   • <a href="https://open.spotify.com/track/4Urf0gTYkomC3yQeDJJZc5?si=ad36a2594ca6413d">Play My Way</a> – Jakeneutron, Blair Greene-Osakom Neelz<br>
-  • <a href="https://open.spotify.com/track/0xVSc4Gvf5ua1yb96Ku5D2?si=e62d8ae2dfbf487b">Run Rabbit</a> - Mollie Elizabeth
+  • <a href="https://open.spotify.com/track/0xVSc4Gvf5ua1yb96Ku5D2?si=e62d8ae2dfbf487b">Run Rabbit</a> - Mollie Elizabeth<br>
+  • <a href="https://open.spotify.com/track/22FniXvTKV9IC6IhxCpYve?si=94e81c5e5c42457d">Hello Kitty</a> - Jazmin Bean
+
 </p>
   
 <p align="center">
