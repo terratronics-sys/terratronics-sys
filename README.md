@@ -72,7 +72,7 @@ Many of the pony skins and character designs you see in-game are non-canon and e
 <p align="center"> </br> ──────────── ⋆⋅☆⋅⋆ ──────────── 
 <p align="center"> # Some basic interacting #
 <p align="center"> </br> Transformers is our main interest. We also enjoy most other TF Media, as well as different kinds of movies, games, books, etc. So feel free to ask about them!
-</br> Each headmate is a different person, of course. You may befriend some of the headmates, but it does not mean that they are all also friends with you, and may be unaware you're friends in the game. Most of the time, it is preferred that you ask to add us/them as friends in-game!
+</br> Each headmate is a different person, of course. You may befriend some of the headmates, but it does not mean that they are all also friends with you, and they may be unaware you're friends in the game. Most of the time, it is preferred that you ask to add us/them as friends in-game!
 <p align="center"> ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 <img width="1138" height="223" alt="image" src="https://github.com/user-attachments/assets/8253e5f1-c7d1-4d5f-bfdb-fa6eb41357b4" />
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
@@ -80,7 +80,7 @@ Many of the pony skins and character designs you see in-game are non-canon and e
 <p align="center"> <img width="200" height="201" alt="image" src="https://github.com/user-attachments/assets/f761cdcd-c58a-467f-b838-752dd14a97f6" />
 
 <p align="center">
-  <b>🎵 Favorite System-Wide Songs: 🎵</b>
+  <b>🎵 Favorite System-Wide Songs 🎵</b>
   <br><br>
   • <a href="https://open.spotify.com/track/3UEnF6y5tyHVtMzldS3svp">Everything Black</a> – Unlike Pluto, Mike Taylor, UP+MT<br>
   • <a href="https://open.spotify.com/track/770TASLWFIJlwJrRMPWdaI">Terrible Things</a> – AXIE<br>
