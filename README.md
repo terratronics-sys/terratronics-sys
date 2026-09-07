@@ -15,7 +15,7 @@
 </br> ☆ We are a Heavily Fictive System with: AuDHD, Amnesia, Insomnia, Anxiety, Depression, Schizophrenia, Bipolar disorder, Dissociative Identity Disorder [obviously], quite a few disorders.
 </br> ☆o Bodily Age: 20 o☆
 <div align="center"> <details>
-    <summary><b>Frequent (and possible) fronters:</b> [mostly EarthSpark fictives]</summary>
+    <summary><b>Frequent (and possible) fronters:</b> </summary>
     <br>
     Megatron<br>
     Optimus Prime<br>
