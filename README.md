@@ -14,7 +14,7 @@
 <p align="center">  # TerraTronics-PonyTown [This updates occasionally]
 </br> ☆ We are a Heavily Fictive System with: AuDHD, Amnesia, Insomnia, Anxiety, Depression, Schizophrenia, Bipolar disorder, Dissociative Identity Disorder [obviously], quite a few disorders.
 </br> ☆o Bodily Age: 20 o☆
-</br> Interaction Boundary Notice: If the headmate currently fronting happens to be your F/O, please maintain appropriate boundaries and do not treat them as such. The members of our system are not your fictional partners, and treating them as interchangeable with your F/Os makes us highly uncomfortable. Please keep all interactions strictly platonic and respectful.
+</br> Interaction Boundary Notice: If the headmate currently fronting happens to be your F/O, please maintain appropriate boundaries and do not treat them as such. Please remember that they are an autonomous member of our system, not the actual fictional character from your personal dynamics or shipping preferences. To prevent anyone from feeling uncomfortable, please refrain from engaging with them in a romantic, intimate, or overly familiar way.
 <div align="center"> <details>
     <summary><b>Frequent (and possible) fronters:</b> </summary>
     <br>
